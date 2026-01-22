@@ -1,5 +1,5 @@
 ## Hi there 👋
 
-I am a tranny in search of guidance (ways to make **big** money).
+I am an NLP graduate in search of guidance (ways to earn money).
 
-I would be uploading my code here but I'm tired of you cissexuals so get out of my page if ur not a tranny also heart emoji
+I would be uploading my code here but this website is largely useless for the unemployed.
